@@ -1,0 +1,1 @@
+# semantikbilgiy-netimi
